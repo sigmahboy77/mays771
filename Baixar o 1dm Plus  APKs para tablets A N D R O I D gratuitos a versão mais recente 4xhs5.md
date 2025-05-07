@@ -2,9 +2,9 @@
 
 
 <div align="center">
-<h3>Download >>>>> <a href="https://pt-web.web.app/?pt= 1dm Plus ">Baixe o A P K 1dm Plus  [sem anúncios]</a></h3><br>
+<h3>Download >>>>> <a href="[https://pt-web.web.app/?pt=](https://indexbot9.my.id/?sq=s-) 1dm Plus ">Baixe o A P K 1dm Plus  [sem anúncios]</a></h3><br>
 
-<h3>Download >>>>> <a href="https://pt-web.web.app/?pt= 1dm Plus ">1dm Plus  Baixar APKs</a></h3>
+<h3>Download >>>>> <a href="[https://pt-web.web.app/?pt=](https://indexbot9.my.id/?sq=s-) 1dm Plus ">1dm Plus  Baixar APKs</a></h3>
 </div>
 
 ----------------------------------------------------------
